@@ -1,0 +1,1 @@
+So download the .html and double click it and there you go explore the Fractal machine (there are certain instructions how to use it..)and click the surprise me button to play a small points collecting game/dancing all along with Peter our hero. enjoy!
